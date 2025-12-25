@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Lisara1212
 - 👀 I’m interested in study new things
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on a speacial guy
 - 📫 How to reach me in discord
 
 <!---
